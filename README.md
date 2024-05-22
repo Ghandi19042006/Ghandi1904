@@ -10,5 +10,8 @@ Meu nome é Ghandi Marcon
 
 ghandimarcon237@gmail.com 
 
-![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExYnFrNDd5YXdpc3VhNjR6ZmhkNnlibjhsbWlqM2NmcGI2NGF1cHNtcSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/VIKa3CjZDCoymNcBY5/giphy.gif)
+![](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExYnFrNDd5YXdpc3VhNjR6ZmhkNnlibjhsbWlqM2NmcGI2NGF1cHNtcSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/VIKa3CjZDCoymNcBY5/giphy.gif) 
+
+> Escrito por Ghandi Marcon 
+
 
